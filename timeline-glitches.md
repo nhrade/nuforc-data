@@ -1,6 +1,6 @@
 
 Here's a list of timeline glitches indicative of something anomolous with the timeline.
-There could be temporal modifications or even a timeline war going on and we don't notice.
+There could be temporal modifications or even a timeline war going on and we don't notice. Some of these could be because of selective memory but some imply some sort of temporal issue, for example pauses in time, and the oz effect.
 
 - [Grandfather Missing](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1expzxl/it_wasnt_my_grandfathers_body_in_the_casket/)
 - [Amazon Truck](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1exfvlt/weird_time_jump_saw_an_amazon_truck_come_out_of_a/)
@@ -11,3 +11,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Hair Curlers](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1emesic/saw_my_girlfriend_wearing_hair_curlers_on/)
 - [Classrooms Switched](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1emmgm4/the_classrooms_switched/)
 - [Smoothie King Disappearance](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ejlray/smoothie_king_disappeared_then_reappeared_weeks/)
+- [Air Duct Timeline Switch](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1efe53x/huge_weird_air_duct_appeared_on_wall_right_next/)
