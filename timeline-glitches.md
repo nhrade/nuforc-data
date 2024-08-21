@@ -10,3 +10,5 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Baby Change](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1emubr8/saw_my_ex_coworker_announced_she_was_going_to/)
 - [Hair Curlers](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1emesic/saw_my_girlfriend_wearing_hair_curlers_on/)
 - [Classrooms Switched](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1emmgm4/the_classrooms_switched/)
+
+https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ejlray/smoothie_king_disappeared_then_reappeared_weeks/
