@@ -1,6 +1,6 @@
 
-Here's a list of timeline glitches indicative of something anomolous with the timeline.
-There could be temporal modifications or even a timeline war going on and we don't notice. Some of these could be because of selective memory but some imply some sort of temporal issue, for example pauses in time, and the oz effect.
+Here's a list of timeline glitches indicative of something anomalous with the timeline.
+There could be temporal modifications or even a timeline war going on and we don't notice. Some of these could be because of selective memory but some imply some sort of temporal issue, for example, pauses in time, and the oz effect. There's no way all of them can be attributed to selective memory. Some have to be some sort of time disturbance.
 
 - [Grandfather Missing](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1expzxl/it_wasnt_my_grandfathers_body_in_the_casket/)
 - [Amazon Truck](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1exfvlt/weird_time_jump_saw_an_amazon_truck_come_out_of_a/)
