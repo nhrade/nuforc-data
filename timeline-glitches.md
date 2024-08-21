@@ -17,3 +17,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Apartment Switch](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ojywk/i_experienced_a_glitch_in_the_timelineor_something/)
 - [Dead Guy Returns](https://arstechnica.com/civis/threads/ive-had-a-bizarre-glitch-in-the-multiverse-experience-maybe-im-going-mad.1495714/)
 - [Time Glitches](https://www.youtube.com/watch?v=3KhuDZ1iRMY&t=0)
+- [Woman Driving with Daughter](https://www.youtube.com/watch?v=LedO9YK7MLI)
