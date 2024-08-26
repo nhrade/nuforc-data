@@ -19,3 +19,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Time Glitches](https://www.youtube.com/watch?v=3KhuDZ1iRMY&t=0)
 - [Woman Driving with Daughter](https://www.youtube.com/watch?v=LedO9YK7MLI)
 - [Parallel Universe](https://www.youtube.com/watch?v=LzR1hW4IPZE)
+- [Reality Shifters Time Glitch](https://realityshifters.com/pages/yourstories8.html)
