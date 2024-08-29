@@ -20,3 +20,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Woman Driving with Daughter](https://www.youtube.com/watch?v=LedO9YK7MLI)
 - [Parallel Universe](https://www.youtube.com/watch?v=LzR1hW4IPZE)
 - [Reality Shifters Time Glitch](https://realityshifters.com/pages/yourstories8.html)
+- [Sun Shifted](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f0gvhr/time_skipping_sun_suddenly_shifting/)
