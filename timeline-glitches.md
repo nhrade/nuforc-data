@@ -21,3 +21,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Parallel Universe](https://www.youtube.com/watch?v=LzR1hW4IPZE)
 - [Reality Shifters Time Glitch](https://realityshifters.com/pages/yourstories8.html)
 - [Sun Shifted](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f0gvhr/time_skipping_sun_suddenly_shifting/)
+- [Time Lag](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f692lz/i_heard_a_clap_before_it_happened_real_life_lag/)
