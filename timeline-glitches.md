@@ -22,3 +22,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Reality Shifters Time Glitch](https://realityshifters.com/pages/yourstories8.html)
 - [Sun Shifted](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f0gvhr/time_skipping_sun_suddenly_shifting/)
 - [Time Lag](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f692lz/i_heard_a_clap_before_it_happened_real_life_lag/)
+- [Time Fast Forward](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fb3z2w/i_heard_a_conversation_in_fast_forward_tonight/)
