@@ -24,3 +24,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Time Lag](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1f692lz/i_heard_a_clap_before_it_happened_real_life_lag/)
 - [Time Fast Forward](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fb3z2w/i_heard_a_conversation_in_fast_forward_tonight/)
 - [Missing Trees](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fcbr4d/trees_are_gone/)
+- [Person Walked by Three Times](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fd78rb/the_same_person_walked_past_me_three_times_in_the/)
