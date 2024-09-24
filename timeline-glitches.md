@@ -27,3 +27,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Person Walked by Three Times](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fd78rb/the_same_person_walked_past_me_three_times_in_the/)
 - [Time Dilation when Driving to Mom](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ffxv3n/so_the_other_night_i_was_driving_to_my_moms_house/)
 - [Frozen Cable Car](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fem9aw/people_froze_in_a_cable_car/)
+- [Time Frozen](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fnxy88/i_have_a_real_glitch_story/)
