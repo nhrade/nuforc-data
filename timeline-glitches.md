@@ -29,3 +29,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Frozen Cable Car](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fem9aw/people_froze_in_a_cable_car/)
 - [Time Frozen](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fnxy88/i_have_a_real_glitch_story/)
 - [Car Changed Color](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1frsxoc/several_years_ago_my_car_changed_colors/)
+- [Snow on Mountain](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fsmjfi/mountain_had_no_snow/)
