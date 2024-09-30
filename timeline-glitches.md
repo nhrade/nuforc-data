@@ -31,3 +31,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Car Changed Color](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1frsxoc/several_years_ago_my_car_changed_colors/)
 - [Snow on Mountain](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fsmjfi/mountain_had_no_snow/)
 - [Engagement Delay](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ft99zj/my_friends_of_over_a_decade_got_engaged_two_years/)
+- [Crush Aging Up](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ft6jn5/a_girl_i_had_a_crush_on_skipped_ahead_two_years/)
