@@ -34,3 +34,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Crush Aging Up](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1ft6jn5/a_girl_i_had_a_crush_on_skipped_ahead_two_years/)
 - [Frozen Chickens on Tiktok](https://www.tiktok.com/@stuckonearth22/video/7307228122842238240)
 - [They Appeared from the Fifth Dimension](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fukfwp/i_saw_someone_walk_in_the_opposite_direction_then/)
+- [OP's Mother Shifted into a Parallel Universe](https://www.reddit.com/r/ParallelUniverse/comments/1fubprb/my_mom_shifted_into_a_parallel_universe/)
