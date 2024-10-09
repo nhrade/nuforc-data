@@ -37,3 +37,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [OP's Mother Shifted into a Parallel Universe](https://www.reddit.com/r/ParallelUniverse/comments/1fubprb/my_mom_shifted_into_a_parallel_universe/)
 - [Tooth Switched Sides](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fx0b09/my_missing_tooth_switched_sides/)
 - [Frozen Leaves](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fyh1m4/leaves/)
+- [Scissors change color](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fz88ns/what_just_happened/)
