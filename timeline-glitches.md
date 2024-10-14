@@ -39,3 +39,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Frozen Leaves](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fyh1m4/leaves/)
 - [Scissors change color](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fz88ns/what_just_happened/)
 - [Time Warp](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fzhaqy/time_warp_glitch/)
+- [Romper Changed](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g3l5eo/my_romper_changed/)
