@@ -41,3 +41,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Time Warp](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1fzhaqy/time_warp_glitch/)
 - [Romper Changed](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g3l5eo/my_romper_changed/)
 - [Disappearing Rooms](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g2y8k1/no_more_bathroom/)
+- [Ice Cream Box Changed](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g58qdt/ice_cream_box_change_color/)
