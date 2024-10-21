@@ -43,3 +43,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Disappearing Rooms](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g2y8k1/no_more_bathroom/)
 - [Ice Cream Box Changed](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g58qdt/ice_cream_box_change_color/)
 - [Dog Let in Again](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g67pli/somehow_let_my_dog_in_twice/)
+- [CT Scan In the Past](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g8b9qm/i_somehow_got_the_results_of_my_ct_scan_before_i/)
