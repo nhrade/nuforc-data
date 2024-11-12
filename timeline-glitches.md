@@ -47,3 +47,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Twilight Zone Road](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g9w74b/the_town_i_grew_up_in_wasnt_letting_me_go/)
 - [Mandela Car](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gf4mdx/noone_remember_my_cousin_owning_a/)
 - [Moon Disappearing](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gklrkb/did_you_notice_the_moon_tonight_september_5th_2024/)
+- [Spoon Change](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gp7uo0/spoon_turned_into_a_knife/)
