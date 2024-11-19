@@ -49,3 +49,4 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Moon Disappearing](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gklrkb/did_you_notice_the_moon_tonight_september_5th_2024/)
 - [Spoon Change](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gp7uo0/spoon_turned_into_a_knife/)
 - [Fork Changes](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gqv70s/two_forks/)
+- [They see themselves in the future](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gub8lt/i_nearly_met_myself/)
