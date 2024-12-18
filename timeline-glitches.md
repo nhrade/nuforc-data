@@ -44,6 +44,7 @@ There could be temporal modifications or even a timeline war going on and we don
 - [Ice Cream Box Changed](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g58qdt/ice_cream_box_change_color/)
 - [Dog Let in Again](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g67pli/somehow_let_my_dog_in_twice/)
 - [CT Scan In the Past](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g8b9qm/i_somehow_got_the_results_of_my_ct_scan_before_i/)
+- [Everlasting Snow Ride](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1hgslas/driving_on_a_short_snow_machine_trail_for_over_20/)
 - [Twilight Zone Road](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1g9w74b/the_town_i_grew_up_in_wasnt_letting_me_go/)
 - [Mandela Car](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gf4mdx/noone_remember_my_cousin_owning_a/)
 - [Moon Disappearing](https://www.reddit.com/r/Glitch_in_the_Matrix/comments/1gklrkb/did_you_notice_the_moon_tonight_september_5th_2024/)
